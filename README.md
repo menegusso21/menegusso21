@@ -13,7 +13,8 @@ Meu nome é Tania Maria da Silva Menegusso
 - @taniamenegusso
 
 ![]( https://media.tenor.com/pLI0522ipGYAAAAi/stitch.gif)
- 
+
+![](https://media.tenor.com/hWGlkGRQHH4AAAAM/have-a-happy-day.gif)
 ![]( https://media.tenor.com/Rv3x7_Mlj1kAAAAm/stich-beso.webp)
 
 ![]( https://media.tenor.com/oi2Rsmz-4UkAAAAm/stitch.webp)
